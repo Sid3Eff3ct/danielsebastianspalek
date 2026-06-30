@@ -1,1 +1,1 @@
-# daniel.sebastian.spalek
+# danielsebastianspalek
